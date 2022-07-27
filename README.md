@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MuhammadAhsanShahzad
-- 👀 I’m interested in ...  
+- 👀 I’m interested in Freelancing
 - 🌱 I’m currently learning Electrical Enginnering and Technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me the.snkhan@gmail.com
